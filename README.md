@@ -1,2 +1,10 @@
 # Dimensions-of-the-Metaverse-
-All the Realms and Dimensions that make up the Metaverse. Of our Imagination and the all the spaces witnin we go to, to help fuel our Creations.  
+The Realms and Dimensions that make up 
+the Metaverse inside our soul. Connecting us
+To our Imagination and all 
+the unique spaces and realms within our mind 
+we connect with in spirit, That help us bring
+Our dreams to life through our Creations.
+Thus adding more creative structure and new 
+Realms and Dimensions to explore. 
+
